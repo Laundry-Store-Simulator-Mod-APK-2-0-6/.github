@@ -52,7 +52,7 @@ The main challenge is managing resources, maintaining customer satisfaction, and
 - Some players find the tasks repetitive.  
 - Requires strategic thinking, which may not suit everyone.  
 
-![Uploading screen-0 (2).jpg…]()
+![screen-0 (2)](https://github.com/user-attachments/assets/8c147285-f22b-400c-b0ba-a1dfa615b06c)
 
 
 ### **How Laundry Store Simulator Mod APK Works**  
